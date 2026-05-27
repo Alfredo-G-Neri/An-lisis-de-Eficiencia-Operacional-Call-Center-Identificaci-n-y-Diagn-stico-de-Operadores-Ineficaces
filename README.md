@@ -1,0 +1,1 @@
+# An-lisis-de-Eficiencia-Operacional-Call-Center-Identificaci-n-y-Diagn-stico-de-Operadores-Ineficaces
